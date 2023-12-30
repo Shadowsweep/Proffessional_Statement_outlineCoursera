@@ -37,3 +37,10 @@ My proficiency in programming languages, databases, and hands-on experience with
 My commitment to using data exclusively for development and advocating for data security aligns with the need for ethical handling of sensitive information within organizations, contributing to compliance and safeguarding against data breaches.
 
 Feel free to connect with me to explore potential collaborations or discussions related to technology, programming, and cybersecurity. Let's shape the future of secure and ethical digital landscapes together!
+
+
+## link to visit outline - https://docs.google.com/document/d/1Ci5h6kqCNEiyjfvIs5o3YtaPeYQ5Cpp5VEEfLJ2dHQo/edit?usp=sharing
+
+## Certificate
+![WhatsApp Image 2023-12-30 at 12 22 47 PM](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/993aa99f-4e79-4815-8051-b1a591b155be)
+
