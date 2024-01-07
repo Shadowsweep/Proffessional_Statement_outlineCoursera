@@ -47,5 +47,6 @@ Feel free to connect with me to explore potential collaborations or discussions 
 ![WhatsApp Image 2023-12-30 at 12 22 47 PM](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/993aa99f-4e79-4815-8051-b1a591b155be)
 
 # Play It Along
-![image](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/583bfa82-2283-4fa7-bca6-5abd44e75f36)
+![image](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/600cde40-8541-4f02-8704-dc8d4d9d7386)
+
 
