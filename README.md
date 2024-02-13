@@ -49,4 +49,9 @@ Feel free to connect with me to explore potential collaborations or discussions 
 # Play It Along
 ![image](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/600cde40-8541-4f02-8704-dc8d4d9d7386)
 
+# Tools of the Trade Linux and Sql
+
+![image](https://github.com/Shadowsweep/Proffessional_Statement_outlineCoursera/assets/122604770/ffa82149-fd33-44a5-88cf-92d5ef6fefc9)
+
+
 
